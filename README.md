@@ -1,0 +1,1 @@
+# Tugas-Praktikum-6-Pert.10-Abstract-Interface_Risky-Parmonangan_312110244_TI-21-C2
